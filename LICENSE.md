@@ -1,4 +1,4 @@
-# 
+# Automático 1inch trading bot flujo de trabajo para Mac OS | Gratuito 1inch trading bot flujo de trabajo para PC Windows. Con análisis de momento y optimización de gas — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
